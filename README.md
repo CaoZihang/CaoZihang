@@ -11,7 +11,7 @@
 - 好吧，看在你这么诚恳的份儿上……
 - 可以发我邮箱13601145702@163.om
 - 其他途径联系，除非我认识你……
-- # 一律**不回**！！！
+- 否则：# 一律**不回**！！！
 
 <!---
 CaoZihang/CaoZihang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
