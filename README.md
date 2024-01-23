@@ -1,6 +1,6 @@
 
 - 📫 How to reach me ... 
-- # **cao_zihang@126.com！**
+- # **cao_zihang@126.com**
 
 
 <!---
